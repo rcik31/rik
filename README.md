@@ -3,7 +3,4 @@ SSDvxdvfddz
 xcxcDFSF
 asaddDSADAfsdffse
 ddwdqw
-cdgdfgretweeddggdgdsadsad
-adasdxgfg
-thtyhrfe
-cscsasad
+cdgdfgretweeddggdgdsadsa
